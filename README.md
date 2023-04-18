@@ -1,3 +1,3 @@
 # Project_GGLA
-## **GAMALE, GASPAR, LADEMORA, APALE**
-Please subscribe to *babymonster43* ;)
+## **xXGamale, Gaspar, Lademora, ApaleXx**
+<3<3 Please subscribe to *babymonster43* <3<3
